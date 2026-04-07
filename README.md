@@ -14,7 +14,6 @@ A passionate **Data Enthusiast** with a strong foundation in analytics, engineer
 
 ### 📫 Let's Connect:
 - 📧 Email: [pawar.sak@northeastern.edu](mailto:pawar.sak@northeastern.edu)  
-- 💼 LinkedIn: [linkedin.com/in/saksheepawar](https://www.linkedin.com/in/saksheepawar)  
 - ✍️ Medium: [@sakshee.pawar1708](https://medium.com/@sakshee.pawar1708)  
 
 
